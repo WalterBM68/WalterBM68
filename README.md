@@ -1,5 +1,5 @@
 # 💫 About Me:
-I am currently learning so I am looking for help in setting up my Github account 
+I AM CURRENTLY DOING MY FINAL YEAR AS A SOFTWARE ENGINEERING
 
 
 ## 🌐 Socials:
