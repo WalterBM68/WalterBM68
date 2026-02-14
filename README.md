@@ -1,5 +1,5 @@
 # 💫 About Me:
-I AM AN WETHINKCODE_ ALUMNI 
+I AM A WETHINKCODE_ ALUMNI.
 
 
 ## 🌐 Socials:
