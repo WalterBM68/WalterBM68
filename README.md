@@ -1,5 +1,5 @@
 # 💫 About Me:
-I AM A WETHINKCODE_ ALUMNI, completed my studies in 2025
+I AM A WETHINKCODE_ ALUMNI, completed my studies in 2025.
 
 
 ## 🌐 Socials:
